@@ -1,4 +1,4 @@
-# 
+# Avançado Vegas Pro para PC plugins é o melhor Vegas Pro para PC plugins com efeitos de transição e ferramentas de colaboração. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
